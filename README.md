@@ -1,2 +1,4 @@
-NO TE COJAS AL FEMBOY
-que rica que esta la vieja :)
+Tools:
+
+Mii Creator: https://mii.nxw.pw
+Photoroom: https://www.photoroom.com/es/herramientas/eliminador-de-fondos
