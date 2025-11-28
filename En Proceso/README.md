@@ -1,1 +1,1 @@
-Repositorio para las versiones editables de la novela.
+Directorio para las versiones editables de la novela.
