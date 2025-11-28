@@ -1,1 +1,1 @@
-Directorio de DEMOS.
+Directorio para los DEMOS de la novela.
