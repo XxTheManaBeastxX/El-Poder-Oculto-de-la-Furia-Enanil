@@ -8,4 +8,4 @@ El Poder Oculto de la Furia Enanil V.1. (pdf): https://us.docworkspace.com/d/sIK
 
 El Poder Oculto de la Furia Enanil V.2. (docx): https://us.docworkspace.com/d/sIEHWl-GUAtrEqMkG
 
-El Poder Oculto de la Furia Enanil V.2. (pdf): https://us.docworkspace.com/d/sIP7Wl-GUAuTEqMkG
+El Poder Oculto de la Furia Enanil V.2. (pdf): https://us.docworkspace.com/d/sIHfWl-GUAofkrskG?sa=601.1037
